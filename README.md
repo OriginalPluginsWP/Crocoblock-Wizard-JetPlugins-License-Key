@@ -6,7 +6,9 @@ Download Crocoblock Wizard with a Lifetime License Key (LTD) and get updates dir
 
 OriginalPlugins provides Original License Keys for WordPress Themes & Plugins. We also have many Popular WordPress Plugins & Themes and plugins for SEO & Optimization  and a curated list of  Top Themes , Top Plugins. & Page Builders.
 
-Contact us https://instagram.com/originalplugins
+Contact us:-
+Instagram: https://instagram.com/originalplugins
+Telegram: https://telegram.me/OriginalPluginsSupport
 
 Original Products: Every item was bought and downloaded directly from the original authors.
 Instant Download: A digital download is available right away after the purchase.
